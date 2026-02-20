@@ -99,7 +99,7 @@ MSc Data Science — Universidad de Chile
 Electrical Engineer  
 
 GitHub: https://github.com/Kiromony  
-Email: simon@repolt.net
+Email: contact@repolt.net
 
 ---
 
